@@ -2,7 +2,7 @@
 
 ### BSCS 1st Semester | Aspiring Erasmus Mundus Scholar | Future Cybersecurity Specialist
 
-> Documenting my journey from BSCS to MS Cybersecurity (Erasmus Mundus - Target: 2028/29 intake)
+> Documenting my journey from BSCS to MS Cybersecurity (Erasmus Mundus - Target: 2029 intake)
 
 ---
 
